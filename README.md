@@ -1,2 +1,2 @@
-[**rentry**](https://rentry.co/goodd0g)
-this i a wip
+[**strawpage**](https://goodd0g.straw.page/)
+   more stuff to be added soon
