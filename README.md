@@ -1,3 +1,2 @@
-             ![](https://64.media.tumblr.com/21fe491828cd7320604da52d6da9b088/bf972d20bbd8dd37-62/s1280x1920/3200cc04b52ae58ddbbea127c7fa02e7b9c7d5d5.pnj)
-             
+             ![](https://cdn.discordapp.com/attachments/1244372207422013532/1535340682598944808/Untitled106_20260807133533.png?ex=6a7768ef&is=6a76176f&hm=9eb2e2a7e7d2933d216bc73f19fdb9eec53a9a2bd6cc1ff231159c87ff98c333&)
                              [**rentry**](https://rentry.co/goodd0g)
